@@ -1,0 +1,1 @@
+readme faylini elave edirik
